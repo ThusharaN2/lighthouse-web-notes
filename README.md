@@ -1,1 +1,1 @@
-# [Thushara]'s Notes
+# Thushara's Notes
